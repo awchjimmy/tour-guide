@@ -11,6 +11,7 @@
 |名稱|備註|
 |----|----|
 |[2018觀光法規(發展觀光條例)](https://www.youtube.com/watch?v=ROu2ej8RL4A)|42:45|
+|[發展觀光條例（第1~20條）](https://www.youtube.com/watch?v=jbD_AEIrCM8)|08:26|
 
 ## 觀光資源概要
 
