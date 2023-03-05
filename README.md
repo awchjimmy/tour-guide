@@ -5,6 +5,8 @@
 
 ## 導遊實務（二）
 ### 發展觀光條例
-- [2018觀光法規(發展觀光條例)](https://www.youtube.com/watch?v=ROu2ej8RL4A)
+|名稱|備註|
+|----|----|
+|[2018觀光法規(發展觀光條例)](https://www.youtube.com/watch?v=ROu2ej8RL4A)|42:45|
 
 ## 觀光資源概要
