@@ -7,17 +7,11 @@
 |[領隊導遊-實務(一)考衝班 - 林俐老師](https://www.youtube.com/watch?v=NyikmZFWbcA)|20:49|
 
 ## 導遊實務（二）
-### 發展觀光條例
 |名稱|備註|
 |----|----|
 |[2018觀光法規(發展觀光條例)](https://www.youtube.com/watch?v=ROu2ej8RL4A)|42:45|
 |[發展觀光條例（第1~20條）](https://www.youtube.com/watch?v=jbD_AEIrCM8)|08:26|
-
-### 旅行業管理規則
-
-### 導遊人員管理規則
-
-## 觀光資源概要
+|[觀光法規(一.香港澳門關係條例第1~23條)](youtube.com/watch?v=CSISSFS1Zqo)|59:55|
 
 ## 其他
 |名稱|備註|
