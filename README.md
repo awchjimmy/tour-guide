@@ -12,6 +12,7 @@
 |[2018觀光法規(發展觀光條例)](https://www.youtube.com/watch?v=ROu2ej8RL4A)|42:45|
 |[發展觀光條例（第1~20條）](https://www.youtube.com/watch?v=jbD_AEIrCM8)|08:26|
 |[觀光法規(一.香港澳門關係條例第1~23條)](youtube.com/watch?v=CSISSFS1Zqo)|59:55|
+|[觀光法規(二.香港澳門關係條例第24條-final&兩岸條例第1-10之1條)](https://www.youtube.com/watch?v=xUJrkoARjCU)|42:23|
 
 ## 其他
 |名稱|備註|
