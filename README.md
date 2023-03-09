@@ -18,3 +18,4 @@
 |名稱|備註|
 |----|----|
 |[2週通過領隊導遊考試 輕鬆準備外語領隊導遊考試](https://www.youtube.com/watch?v=V3quKF8TI34)|06:02|
+|[領隊筆試準備必看！我如何考上英語領隊？無藏私全攻略大公開！](https://www.youtube.com/watch?v=MRzbor6ss_s)|24:44|
